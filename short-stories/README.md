@@ -1,1 +1,1 @@
-Short Stories. All short stories can be found here.
+Short Stories folder. All short stories can be found here.
